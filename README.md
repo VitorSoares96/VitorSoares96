@@ -2,6 +2,5 @@
 
 Vítor Soares dos Santos or Portuga's
 
-20y
-
+masoquismo é parte da minha vida diaria
 PT --> BR
